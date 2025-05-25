@@ -11,65 +11,16 @@
 
 ⬇️⬇️⬇️
 
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
 
+
+
+
+
+
+
+
+
+       
 
 ## If you donate, half or 60% of your donation (depending of the amount) will be used to make giveways, developing games on roblox or creating apps, creating my own developing studio ⭐ !
 ### A big thank to the ones who will donate (even a small amount) !!!
